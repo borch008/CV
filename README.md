@@ -1,1 +1,1 @@
-# CV in Spanish and English
+# CV in Catalan, Spanish and English
